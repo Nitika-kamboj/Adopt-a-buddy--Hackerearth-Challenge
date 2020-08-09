@@ -1,0 +1,1 @@
+# Adopt-a-buddy--Hackerearth-Challenge
